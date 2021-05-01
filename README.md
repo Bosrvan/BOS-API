@@ -1,2 +1,0 @@
-# BOTBOS
-Selalu Tampil Hebat
